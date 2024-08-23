@@ -8,4 +8,4 @@ Meu nome é Luís
 
 Entre em contato comigo: luis.machado.mello@escola.pr.gov.br
 
-! [adios!](https://tenor.com/pt-BR/view/stephen-curry-gif-25553261)
+! [adios!](https://tenor.com/pt-BR/view/steph-curry-gif-871088147804503230)
