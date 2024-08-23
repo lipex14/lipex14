@@ -8,4 +8,4 @@ Meu nome é Luís
 
 Entre em contato comigo: luis.machado.mello@escola.pr.gov.br
 
-![sorria!](https://tenor.com/pt-BR/view/basketball-roblox-head-smile-default-2006face-stare-gif-26487792)
+![adios!](https://tenor.com/pt-BR/view/stephen-curry-gif-25553261)
